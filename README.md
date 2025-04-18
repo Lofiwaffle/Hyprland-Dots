@@ -1,4 +1,4 @@
-Idk what put for the title, enjoy my dots!
+Idk what to put here, enjoy my dots!
 
 
 ![2025-04-09-205508_hyprshot](https://github.com/user-attachments/assets/b465ea2c-be31-4c54-a68a-726b8da95898)
